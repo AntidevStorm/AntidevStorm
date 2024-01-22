@@ -20,4 +20,4 @@ If any of my scripts decide to throw a little tantrum, no worries, I've got your
 # Fun Fact About Me:
 I'm always up for a good time, especially when it comes to crafting game-modifying scripts. 
 It's not just about coding; it's about creating something awesome together. 
-Got a wild and crazy idea for a script? Hit me up at _rlvtstorm@gmail.com_!
+Got a wild and crazy idea for a script? Hit me up at _bernadetta696@gmail.com (yes, it is an EBW mail)_!
